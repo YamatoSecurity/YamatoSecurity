@@ -10,7 +10,7 @@
 - Born and raised in the US (~20 years).
 - Love for world travel and learning other cultures and languages (Brazil, Korea, Thailand, Middle East (Egypt, Jordan, Syria, Turkey, Greece), India, Nepal, etc...) (~2 years)
 - Working professionally in cyber security in Japan. Half offense (pentests, vuln assessments, etc...) / Half defense (Forensics & Incident Response). (~20 years).
-- Hobbies: Japanese gardening, calligraphy, home rennovation, ethnic fusion music (darbuka, frame drums, tabla, shakuhachi, ney, bansuri, nadaswaram, didgeridoo, etc...).
+- Hobbies: Japanese gardening, calligraphy, home rennovation, ethnic fusion music (darbuka, frame drums, tabla, shakuhachi, ney, bansuri, nadaswaram, didgeridoo, etc...), beekeeping, puzzles.
 - Sports: Aikido, capoeira, rock climbing, snowboarding, hiking/camping.
 - Religion: Non-religious but try to practice Buddhist philosophy as much as I can. Daily Vipassana/Zen meditator.
 
